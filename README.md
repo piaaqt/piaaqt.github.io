@@ -11,7 +11,6 @@ Female domestic cats can have kittens from spring to late autumn in temperate zo
 
 The number of recognized show breeds that have defined, inherited characteristics has increased dramatically since the late 1950s as cats have become more popular as home companions. HERE ARE SOME BREEDS:
 
-![alt text](https://i.pinimg.com/originals/f6/4f/7c/f64f7c1242f8996d5be38cdf85f19c1e.jpg)
 
 This video shows some facts about cats:
 
